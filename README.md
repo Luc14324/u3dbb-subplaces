@@ -2,12 +2,12 @@
 DONT JOIN:
 HardBosses: 880176772
 Asriel Fight: 2549949948
-UnderVerse: 243354051
+UnderVerse: 3863052641
 D7MirrorWorld: 4056543829
-UnderSwap: 243354051
-Arena: 243354051 (not sure if you can get banned by joining this)
+UnderSwap: 4694524326
+Arena: 11197923610 (not sure if you can get banned by joining this)
 If you join any of those games, you can get banned.
 You can join:
-Mew Mew Fight: 243354051 Rewards mew mew staff
+Mew Mew Fight: 3630974217 Rewards mew mew staff
 Dustbelief JTrockers: 11859653990 Rewards caramel pie
 Tem's Epic Adventure: 16931388571 Rewards yet to be found
