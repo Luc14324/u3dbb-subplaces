@@ -9,5 +9,5 @@ Arena: 243354051 (not sure if you can get banned by joining this)
 If you join any of those games, you can get banned.
 You can join:
 Mew Mew Fight: 243354051 Rewards mew mew staff
-Dustbelief JTrockers: 243354051 Rewards caramel pie
-Tem's Epic Adventure: 243354051 Rewards yet to be found
+Dustbelief JTrockers: 11859653990 Rewards caramel pie
+Tem's Epic Adventure: 16931388571 Rewards yet to be found
